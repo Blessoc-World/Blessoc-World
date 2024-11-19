@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Blessoc-World
+- 👋 Hi, I’m @Blessedsoul712
 - 👀 I’m interested in Bitcoin, Interior and exterior furniture arrangement of home's 🧰🛏️🛋️🚪
 - 🌱 I’m currently learning ... Bitcoin Education 
 - 💞️ I’m looking to collaborate in respect to ultra modern furniture design and home beautification 💺
